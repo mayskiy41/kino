@@ -1,1 +1,1 @@
-# kino
+# kinomix
